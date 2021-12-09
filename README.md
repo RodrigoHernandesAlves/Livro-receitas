@@ -2,6 +2,8 @@
 
 
 
-Ola ! bem vindo ao meu livro de rceitas :cookie:
+Ola ! bem vindo ao meu livro de receitas :cookie:
 
 Coxinha de frango 
+
+Pastel
